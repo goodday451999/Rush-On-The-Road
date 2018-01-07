@@ -12,6 +12,6 @@ And forward - backward buttons are also functional as usual.
 
 **----Safe Journey----**
 
-See you there..#Cheers!!#
+See you there....Cheers!!
 
 *Demo Video of the game has been uploaded.*
